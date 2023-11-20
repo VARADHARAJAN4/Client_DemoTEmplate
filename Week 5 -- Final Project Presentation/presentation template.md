@@ -1,0 +1,1 @@
+The students must present the project based on the follow the presentation template
